@@ -2,5 +2,10 @@
 
 Meu nome é Gabrielli Czaja
 -Sou estudante🤕
--Tenho 15 anos😻
--Aqui vou organizar e compartilhar meus projetos🤯:hea
+
+-Aqui vou organizar e compartilhar meus projetos🤯
+### Você pode entrar em contato comigo 📫
+
+gabrielli.czaja@escola.pr.gov.br
+
+@gabrielli.czaja
